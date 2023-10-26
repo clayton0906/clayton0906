@@ -1,1 +1,5 @@
-𝔬𝔩á , 𝔢𝔲 𝔰𝔬𝔲 ℭ𝔩𝔞𝔶𝔱𝔬𝔫 , 𝔢 𝔢𝔲 𝔢𝔰𝔱𝔲𝔡𝔬 𝔫𝔬 𝔠𝔢𝔞𝔡
+*Olá , meu nome e CLayton
+*Sou estudante do CEAD
+*Tenho 15 anos e estou no primeiro do esino medio
+*Moro em Ibaiti Paraná
+*Torço para o São Paulo
